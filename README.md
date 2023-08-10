@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Capibarainsana
 PROVEDOR IPTV
-Para mas INFO contactar a enriquegarciaguerrero@outlook.es
+Para mas INFO contactar a capibaraiptv@gmail.com
 ADVERTENCIA!
 LAS LISTAS SON GRATUITAS, CADA CLIENTE TIENE UNA LISTA PERSONALIZADA. SI EL CLIENTE DEJA DE PAGAR SE LE DARAN 3 AVISOS Y AL TERCERO SE LE ELIMINARA LA LISTA.
 PACKS
